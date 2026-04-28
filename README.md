@@ -1,0 +1,2 @@
+# Kedai-Mantala
+Jadi #TemanSetia
